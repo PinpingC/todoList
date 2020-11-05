@@ -3,4 +3,3 @@
 HI PINGGGGGGGGGGGGGGGGGGGG
 
 Hi Judy Beauty
-Judy Beautiful friend

@@ -3,4 +3,4 @@
 HI PINGGGGGGGGGGGGGGGGGGGG
 
 Hi Judy Beauty
-Judy Beautiful friend
+Judy Beautiful friend 100分
